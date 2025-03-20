@@ -1,5 +1,5 @@
 HI , IM NOX
-MY INSTAGRAM < https://www.instagram.com/vvc3vv/ >
+Good experience in closing accounts, channels, bots and groups in Telegram
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/JQ9aXaYbe8) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/@VVC3VV) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/https://www.twitch.tv/noxalmost) 
